@@ -1,3 +1,3 @@
-🐐 21 · he<br/>
-🦈 gamer by day, programmer at night<br/>
-🌼 making games about balls and rats
+21 · he<br/>
+programmer, game developer and hiking amateur<br/>
+making games about asterisms and post-apocalyptic botany
